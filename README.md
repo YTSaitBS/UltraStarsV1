@@ -1,5 +1,3 @@
-UltraStarsV1
-
 **Link :** https://www.mediafire.com/file/xucqstzs98k60rm/Ultra_Stars_V1.apk/file
 
 **Discord :** https://discord.gg/YH7G78wG6r
