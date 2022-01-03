@@ -1,4 +1,4 @@
-**Link :** https://www.mediafire.com/file/xucqstzs98k60rm/Ultra_Stars_V1.apk/file
+**Link :** https://www.mediafire.com/file/avcj1cffhs0mv1z/Ultra_Stars_V1_Optional_Update.apk/file
 
 **Discord :** https://discord.gg/YH7G78wG6r
 
